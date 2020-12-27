@@ -1,1 +1,1 @@
-## what's crackalackin' my friend
+## what's crackalackin', friendo?
